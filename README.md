@@ -1,2 +1,2 @@
 # Shiri-Maimon.github.io
-https://Shiri-Maimon.github.io/שפות/
+https://Shiri-Maimon.github.io/Shiri/
